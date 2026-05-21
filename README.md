@@ -1,6 +1,6 @@
 # Fabricio Mergen de Oliveira
 
-**`Futuro Cientista de Dados`**
+**`🚀 Futuro Cientista de Dados e Desenvolvedor Full Stack`**
 
 👋 Olá! Sou Fabricio Mergen de Oliveira
 
